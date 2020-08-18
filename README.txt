@@ -50,3 +50,10 @@ CONTACT - RMP3
 I hope this repository provides useful or interesting reading to someone. In the event that anything is confusing,
 I'm happy to be reached via jwestonstem@gmail.com . 
 
+
+
+
+
+"On this cable system we receive over one million channels from the furthest reaches of the galaxy."
+
+"You get H.B.O.?"
